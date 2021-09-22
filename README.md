@@ -1,2 +1,5 @@
-# truck-simulator-ultimate-cheat-unlimited-gold
-Truck Simulator Ultimate cheat unlimited gold and money Hacks iOS
+# Truck Simulator Ultimate cheat unlimited gold and money Hacks iOS
+
+Truck Simulator Ultimate cheat unlimited gold and money Hacks iOS - First, there is a pause button at the top of the screen. Pressing it will give you three options, that is, continue playing, "play again" or reset the task at hand, or enter the main menu. Initially, it will be very convenient if you want to test drive before actually trying to complete the job. Later, you may find yourself deciding to let one of your drivers take over the job instead of you, so entering the main menu will automatically exit the job at hand. If you want to hear more than the truck engine, horn, rain and other vehicles on the road, you will like Truck Simulator Ultimate: the built-in radio in Europe, which has many radio stations. Once you click it, you can click the "radio on" button to start listening to different stations on the list. Make sure to scroll down because there are more channels available than are displayed on the screen. Picking up the signal may take some time, so you may want to set it before starting scrolling.
+
+<a href="https://watermod.icu/truck-simulator-ultimate/">View here</a>
